@@ -1,4 +1,4 @@
-# wotaku – シャンティ
+# wotaku、KAITO – シャンティ（feat. KAITO）
 
 > **歌詞登録ステータス：同期歌詞あり**
 
